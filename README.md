@@ -1,3 +1,3 @@
-LegalTech Specialist and Senior lawyer
+LegalTech Specialist and Senior Lawyer
 
-Message me on Discord: @Legovir
+Message me on **Discord**: **@Legovir**
